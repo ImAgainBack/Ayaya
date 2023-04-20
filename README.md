@@ -1,1 +1,1 @@
-![](ayaya.gif!)
+![](ayaya.gif)
